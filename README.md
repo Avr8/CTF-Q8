@@ -1,1 +1,1 @@
-Never let the fear of striking out keep you from playing the game.
+The only impossible journey is the one you never begin.
