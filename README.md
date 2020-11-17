@@ -1,1 +1,1 @@
-If you set your goals ridiculously high and it's a failure, you will fail above everyone else's success.
+When you reach the end of your rope, tie a knot in it and hang on.
