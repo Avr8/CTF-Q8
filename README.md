@@ -1,1 +1,1 @@
-whoever is happy will make others happy too.
+You will face many defeats in life, but never let yourself be defeated.
