@@ -1,1 +1,1 @@
-When you reach the end of your rope, tie a knot in it and hang on.
+Always remember that you are absolutely unique. Just like everyone else
