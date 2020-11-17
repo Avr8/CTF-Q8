@@ -1,1 +1,1 @@
-CTF{this_is_the_flag}
+Life is either a daring adventure or nothing at all.
