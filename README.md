@@ -1,1 +1,1 @@
-Life is a succession of lessons which must be lived to be understood.
+You will face many defeats in life, but never let yourself be defeated.
