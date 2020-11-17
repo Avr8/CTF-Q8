@@ -1,1 +1,1 @@
-You will face many defeats in life, but never let yourself be defeated.
+Never let the fear of striking out keep you from playing the game.
