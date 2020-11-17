@@ -1,1 +1,1 @@
-I love open source.
+I love Cloud computing.
