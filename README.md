@@ -1,1 +1,1 @@
-You will face many defeats in life, but never let yourself be defeated.
+CTF{this_is_the_flag}
