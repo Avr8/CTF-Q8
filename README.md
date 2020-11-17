@@ -1,1 +1,1 @@
-Life is either a daring adventure or nothing at all.
+you have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose.
