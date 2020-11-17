@@ -1,1 +1,1 @@
-Always remember that you are absolutely unique. Just like everyone else
+The future belongs to those who believe in the beauty of their dreams
